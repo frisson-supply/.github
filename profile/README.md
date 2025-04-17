@@ -1,3 +1,3 @@
 # HI
 
-We are not bad at creating goodgood stuff.
+Frisson supply, coming soon.
